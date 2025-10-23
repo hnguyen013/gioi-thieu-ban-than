@@ -8,5 +8,5 @@ Xin chào! Mình là Hạnh Nguyên, hiện đang học SP Tin 2B tại Đại h
 
 ## Thông tin liên hệ
 - 📧 Email: hanhnguyen130526@gmail.com  
-- 🌐 [Facebook](hhttps://www.facebook.com/tran.hanh.nguyen.508713/)  
+- 🌐 [Facebook](https://www.facebook.com/tran.hanh.nguyen.508713/)  
 >"Another day"
